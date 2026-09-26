@@ -1,15 +1,19 @@
                     
 
-  I'm Deezii/AL!!! (THESE R OLD ART😢😢😢)
+  I'm Deezii/AL!!! (UPDATED ART YES❤️)
 
   
-![image](https://github.com/user-attachments/assets/f9dbff55-1615-4a02-ba16-6ab0c5a1d273).   minor oct 1 , poc artist
+<img width="2048" height="2048" alt="image" src="https://github.com/user-attachments/assets/aab9da16-65b3-4a7a-b087-4470f33bcd2d" />
+.   minor oct 1 , poc artist
+
+
 
 
 
 feel mega free to friend me!! 9/10 times i prob looked @ u and wanted to be buds👀 😋Sorry if I'm afk tho😢
 
-![image](https://github.com/user-attachments/assets/091e37be-cb79-4493-aba4-561c0646b6a2)
+
+<img width="2048" height="1536" alt="image" src="https://github.com/user-attachments/assets/1bec8351-e740-4e3f-86e6-2408da511e2f" />
 
 
 
